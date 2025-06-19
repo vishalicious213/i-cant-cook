@@ -31,3 +31,14 @@ __Internal Temp:__
     - 400 degrees preheated, 12 min flipped halfway, then 2 more minutes 
 - __Steak butter__: 1/4 stick, 1/2 tsp garlic salt, 1/2 tsp Worcestershire...mixed, put on hot steak (I used 1/2 recipe)
 - __Tocino__: 15 mins @ 400. Flip every 5 mins
+
+
+## Recipe links
+
+- [Pasta and spam](https://www.pete-eats.com/all-recipes/cacioepepe)
+- [Bucket of Gravy Instant Pot Roast](https://www.thekitchenmagpie.com/bucket-o-gravy-instant-pot-roast/)
+- [Beef Stroganoff](https://www.julieseatsandtreats.com/instant-pot-pressure-cooker-hamburger-stroganoff/)
+- [Dal](https://www.bonappetit.com/story/instant-pot-dal-formula)
+- [Rice](https://greenhealthycooking.com/instant-pot-rice/)
+- [RPG](https://www.nytimes.com/2020/01/15/magazine/chinese-roast-pork-garlic-bread-recipe.html)
+- [21 Appetizers](https://www.tasteofhome.com/collection/air-fryer-appetizers/)
