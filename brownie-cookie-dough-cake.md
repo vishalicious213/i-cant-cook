@@ -1,0 +1,3 @@
+# Brownie/cookie dough cake:
+
+Awesome. Its super easy. Get chocolate chip cookie dough. Any kind works but i prefer the nestle toll house in the tube. Brownie mix any type really but the Ghirardelli double fudge rocks. And a pack of golden oreos. Grease your pan with butter. Roll out the cookie dough and lay flat in pan(it should fill the bottom completely). Then place oreoes halfway in to cookie dough ( i smush them in rows then break other cookies in half to put in the gaps that way you get full layer of oreos). Mix brownie batter and pour on top level out batter. Bake at 325 for 45-60 min based on oven. Just check the center of brownie to make sure its done. Grease pan liberally. Thats it enjoy. 😆
