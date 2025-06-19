@@ -36,3 +36,16 @@ All I know is he cooked them at 400 for 15 minutes. Turning them over at 7 minut
 - form into patties, 
 - use remaining tblsp. of olive oil to lightly coat patties or spritz them. 
 - Cook at 350° for 10 min. or until golden brown.
+
+.....
+
+Drain and save liquid from salmon. Mix egg, flour and salmon together.
+Make into patties. If mixture is too dry to form into patties, add some of the saved liquid from salmon. Coat salmon patties with self rising corn meal. Place patties in air fryer at 400f for 15 minutes.
+
+.....
+
+Sure! They are just my Kentuckian dad's salmon patty recipe. 1 can salmon, 1 sleeve ritz crackers crushed, 1 egg, diced onion, salt and pepper. I divide into 6 patties or 12 croquettes. 350 for 6 flip 6. Simple,cheap,easy!
+
+.....
+
+Can salmon, saltines, onion, egg, salt& pepper. 375 for 15 minutes
