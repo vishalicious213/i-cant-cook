@@ -1,6 +1,6 @@
 # I Can't Cook
 
-Recipes from a guy who can't cook
+Recipes from a guy who can't cook but has to feed his kiddos
 
 ## Air Fryer
 
