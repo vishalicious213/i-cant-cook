@@ -32,5 +32,6 @@ Recipes from a guy who can't cook but has to feed his kiddos
 - [Fried Aloo](./recipes/fried-aloo.md)
 - [Palau](./recipes/palau.md)
 - [Rice - Jasmine](./recipes/rice-jasmine.md)
+- [Rice - Texas Roadhouse](./recipes/rice-tx-road.md)
 - [Spaghetti](./recipes/spaghetti.md)
 - [Taco Seasoning](./recipes/taco-seasoning)
