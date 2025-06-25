@@ -2,19 +2,19 @@
 
 ## Ingredients
 
-1/2 cup Butter
-2 cups Rice
-1 Onion chopped
-1 tablespoon Minced Garlic
-
-1 tablespoon Smoked Paprika
-1/2 teaspoon Garlic Powder
-2 tablespoon Dried Parsley
-1/2 teaspoon Black Pepper
-1/2 teaspoon Cayenne Pepper
-1/2 cup Soy Sauce (low sodium)
-
-4 cups Chicken Broth
+- 1/2 cup Butter
+- 2 cups Rice
+- 1 Onion chopped
+- 1 tablespoon Minced Garlic
+...
+- 1 tablespoon Smoked Paprika
+- 1/2 teaspoon Garlic Powder
+- 2 tablespoon Dried Parsley
+- 1/2 teaspoon Black Pepper
+- 1/2 teaspoon Cayenne Pepper
+- 1/2 cup Soy Sauce (low sodium)
+...
+- 4 cups Chicken Broth
 
 ## BROWN THE RICE
 
