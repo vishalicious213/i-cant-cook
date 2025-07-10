@@ -1,5 +1,7 @@
 # Pad See Ew
 
+[Original recipe](https://www.recipetineats.com/thai-stir-fried-noodles-pad-see-ew/)
+
 ## INGREDIENTS
 
 ### Noodles
