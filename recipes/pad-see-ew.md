@@ -21,3 +21,17 @@
 - 1 cup / 50oz chicken thighs (boneless, skinless, sliced)
 - 1 large egg
 - 4 stems Chinese broccoli
+
+## INSTRUCTIONS
+
+### Preparation
+
+- Chinese broccoli 
+    - Trim ends, cut into 3" pieces
+    - Separate leaves from stems
+    - Cut thick stems in half vertically so they're .3" thick
+- Noodles
+    - Prepare according to packet directions & drain
+    - Time it so they cook just before using, don't let them sit, they'll break in the wok
+- Sauce
+    - Mix ingredients until sugar dissolves
