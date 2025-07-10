@@ -30,6 +30,7 @@ Recipes from a guy who can't cook but has to feed his kiddos
 - [Chicken Salad](./recipes/chicken-salad.md)
 - [Curry Chicken](./recipes/curry-chicken.md)
 - [Fried Aloo](./recipes/fried-aloo.md)
+- [Pad See Ew](./recipes/pad-see-ew.md)
 - [Palau](./recipes/palau.md)
 - [Rice - Jasmine](./recipes/rice-jasmine.md)
 - [Rice - Texas Roadhouse](./recipes/rice-tx-road.md)
